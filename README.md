@@ -1,3 +1,3 @@
-# GabriellaZachos.github.io-
+# GabriellaZacho.github.io-
 
-Welcome! This page is hosted at [GabriellaZachos.github.io-](https://GabriellaZachos.github.io-)
+Welcome! This page is hosted at [gabriellazachos-cell.github.io](https://gabriellazachos-cell.github.io)
